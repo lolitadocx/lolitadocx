@@ -1,4 +1,1 @@
-## Hi there 👋
-
-<!--
-![вертин](https://pin.it/5ck1alqsj)
+![gif](https://tenor.com/kwChceXIqiQ.gif) 
